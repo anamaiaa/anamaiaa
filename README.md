@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-![](https://media.tenor.com/EMCeNxyIQaQAAAAM/kakashi-fortnite-kakashi-lityel.gif)
+![](https://www.estadao.com.br/resizer/5KCfBS4OPbLg4GftdDnn5cZv00A=/arc-anglerfish-arc2-prod-estadao/public/C4QYXAQXDBHDRD2OCVN4TP3CXY.jpg)
